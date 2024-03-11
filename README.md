@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Front End Development**
 
-- 📫 Reach me at **Jahidakram@gmail.com**
+- 📫 Reach me at **Jahidakram99+github@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
